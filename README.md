@@ -10,10 +10,6 @@
 лучше переосторожничать, чем сделать кому то неприятно и испортить кому то настроение. 
 все мы все таки люди, стоит заботиться о чувствах окружающих тебя людей ("мои личные границы заканчиваются там, где начинаются границы другого").
 
-Average black people enjoyer
-LGBTQ+, non-binary person
-they/them
-
 <!---
 MaybebabyEnjoyer/MaybebabyEnjoyer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
